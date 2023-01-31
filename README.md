@@ -5,6 +5,6 @@
 </picture>
 
 read . . . ♡
-https://rentry.co/bleedette &
+https://rentry.co/idolslace &
 
 . . . ♡ https://rentry.co/devoided   ── ⠀ 
