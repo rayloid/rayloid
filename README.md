@@ -5,6 +5,5 @@
 </picture>
 
 read . . . ♡
-https://rentry.co/bleedette &
 
 . . . ♡ https://rentry.co/devoided   ── ⠀ 
