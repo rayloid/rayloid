@@ -5,9 +5,3 @@
 </picture>
 
 ⋆⠀⬪⠀⠀› ⠀⑅⠀⠀ https://rentry.org/bloodyhalo ── ⠀ ⠀♡⠀. . . ⠀ 
-
-The ... Uhm ... Silly  ↓  ↓  ↓ 
-
-♡⠀. . . ⠀ https://listography.com/surge
-
-♡⠀. . . https://rentry.org/devoided
